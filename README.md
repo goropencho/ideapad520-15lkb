@@ -1,0 +1,1 @@
+# ideapad520-15lkb
